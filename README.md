@@ -1,3 +1,7 @@
+**Informe tarea 6**
+
+Nombre: Steveen Vallejo 
+
 ***1. OBJETIVOS***
 
 _Estudiar y analizar el uso y aplicación de los capacitores
