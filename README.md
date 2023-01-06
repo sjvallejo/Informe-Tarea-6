@@ -90,7 +90,7 @@ _Realizar ejercicios y análisis de frecuencias y periodos
 
 ***4)Video***
 
-https://www.youtube.com/watch?v=xTJNeXQfQ_o&feature=youtu.be&ab_channel=MartinVaca
+https://www.youtube.com/watch?v=xTJNeX
 
 ***5.Conclusiones***
 
